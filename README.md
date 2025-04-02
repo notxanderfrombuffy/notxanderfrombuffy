@@ -4,6 +4,8 @@ I'm Xander. 21. They/She/He
 
 Interests: Kamen Rider, RWBY, Vocaloid, Saw, SMT
 
+Minors DNI
+
 <!--
 **notxanderfrombuffy/notxanderfrombuffy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
