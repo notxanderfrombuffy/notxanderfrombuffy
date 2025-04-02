@@ -1,4 +1,8 @@
-## Hi there 👋
+## One More Time!
+
+I'm Xander. 21. They/She/He
+
+Interests: Kamen Rider, RWBY, Vocaloid, Saw, SMT
 
 <!--
 **notxanderfrombuffy/notxanderfrombuffy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
